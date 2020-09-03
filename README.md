@@ -6,5 +6,5 @@
 - ⚡ Fun fact: I have traveled to 5 different countried for Esports Tournaments 
 - 📫 How to reach me: adamcjackman@gmail.com
 
-- [Linkedin](https://www.linkedin.com/in/adam-jackman-03055a172/)
+- 📝[Linkedin](https://www.linkedin.com/in/adam-jackman-03055a172/)
 
